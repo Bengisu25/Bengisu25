@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Bengisu25
+- 👀 I’m interested in pharmacy and software
+- Contect : bgscelik@hotmail.com 
